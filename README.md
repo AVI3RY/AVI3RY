@@ -5,7 +5,8 @@
 <br/>
 <br/>
 you've probably found yourself over here from ponytown, hi!! we're a DID system I promise we don't bite we tend to AFK quite a bit so please don't feel upset if we don't respond!! please feel to send us a whisper + feel free to hug and overall just int with us! 
-  <img width="1577" height="507" alt="image" src="https://github.com/user-attachments/assets/4db3fd1a-0a15-4e19-8003-728d03ab2385" />
+  <img width="4096" height="2249" alt="image" src="https://github.com/user-attachments/assets/a240e2ea-8e11-4fb2-af20-36fc30f1d4b2" />
+
 
 <p align="center">
 <br/><br/>
