@@ -1,16 +1,14 @@
-## Hi there 👋
-
-<!--
-**AVI3RY/AVI3RY** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+<br/>
+<br/>
+<p align="center">
+<br/>
+<br/>
+you've probably found yourself over here from ponytown, hi!! we're a DID system I promise we don't bite we tend to AFK quite a bit so please don't feel upset if we don't respond!! please feel to send us a whisper + feel free to hug and overall just int with us! 
+<p align="center">
+<br/><br/>
+<p align="center">
+also feel free to leave something for us on our strawpage https://avi3ry.straw.page/
+<br/>
+<br/>
+<p align="center">
