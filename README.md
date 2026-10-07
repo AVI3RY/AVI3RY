@@ -4,6 +4,8 @@
 <p align="center">
 <br/>
 <br/>
+  <img width="4096" height="2249" alt="image" src="https://github.com/user-attachments/assets/25975b40-45e8-4710-878c-332358607492" />
+
 you've probably found yourself over here from ponytown, hi!! we're a DID system I promise we don't bite we tend to AFK quite a bit so please don't feel upset if we don't respond!! please feel to send us a whisper + feel free to hug and overall just int with us! 
 <p align="center">
 <br/><br/>
